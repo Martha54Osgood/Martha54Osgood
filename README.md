@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Martha54Osgood, a former book indexer
+- 👋 Hi, I’m @Martha54Osogood, a former book indexer
 - 👀 I’m interested in using the Cindex for Mac Open Source program
 - 📫 How to reach me: maroz@comcast.net
 - ⚡ Fun fact: Think Peer Review for Indexers and "Why I don't want to be an Indexer" in the early 2000s
